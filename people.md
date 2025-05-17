@@ -1,0 +1,3 @@
+Hama
+Karma
+Zielo100
